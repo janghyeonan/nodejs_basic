@@ -2,4 +2,4 @@
  
  1st day
  
- study
+ study gogo
